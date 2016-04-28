@@ -1,1 +1,1 @@
-# discriminaci-nenclasessociales
+# ladiscriminacion
